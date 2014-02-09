@@ -1,5 +1,5 @@
-social-media-cta-icons-1
-========================
+Social Media Icons Featuring Calls-To-Action.
+=======================
 
 Download 10 pack of social media icons that features calls to action.
 
